@@ -1,4 +1,4 @@
-# 
+# Gratuit Bitdefender Total Security scripts pour Mac OS | Open Source Bitdefender Total Security scripts pour PC Windows. Avec évaluation des vulnérabilités et suivi de géolocalisation — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
